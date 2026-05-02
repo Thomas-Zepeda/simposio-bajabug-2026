@@ -1,1 +1,1 @@
-# simposio-bajabug-2026
+# simposio-bajacat-2026
